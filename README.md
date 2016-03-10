@@ -11,3 +11,6 @@ Zelda, there was a large amount of difficulty in the game. It was insanely ruthe
 from the beginning of a dungeon. This game would have had an amazing fighting system if it had a more complex fighting system. However, 
 it was as simple as point and hit. There isn't much more to say on the gameplay or story of the Legend of Zelda, so I will leave it off
 here.
+
+Work Cited:
+Wikipedia. The Legend of Zelda. Wikipedia. 10 March 2016. Web.
